@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @MorgGir
 - 👀 I’m interested in music food and foreign culture 
-- 🌱 I’m currently learning new stuff about technology thanks
- to online courses from Harvard 
 - 💞️ I’m looking to collaborate on developing futuristic projects 
 that can help people 
 - 📫 How to reach me : morgangiribuola@gmail.com 
